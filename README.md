@@ -1,7 +1,7 @@
 
 
 
-# ཧᜰ꙰ꦿ➢𝐎𝐀𝐍༒☛ 
+# 𓆩🕊️⃝𝐑𝐀𝐈𝐂𝐇𝐔𓆪
 
 </p>
 
@@ -10,11 +10,11 @@
 
 </p>
 
-🔗𝐏𝐨𝐰𝐞𝐫𝐞𝐝 𝐛𝐲 : @Attitude_Network
+🔗𝐏𝐨𝐰𝐞𝐫𝐞𝐝 𝐛𝐲 : @RAICHU_SPAM_SUPPORT
 
 </p>
 
-<p align="center"><a href="Https://t.me/OAN_Support"><img src="https://telegra.ph/file/9245aebfee162bfbe951d.jpg" width="300"></a></p>
+<p align="center"><a href="https://t.me/RAICHU_SPAM_SUPPORT"><img src="https://te.legra.ph/file/db7a18d702437595cd9da.jpg" width="300"></a></p>
 
 </p>
 
@@ -34,19 +34,19 @@
 
 ## .ᴜᴩᴅᴀᴛᴇꜱ🔊
 
-[![ᴜᴩᴅᴀᴛᴇꜱ](https://img.shields.io/badge/ᴜᴩᴅᴀᴛᴇꜱ-Attitude_Network-red?style=for-the-badge&logo=telegram)](https://t.me/@Attitude_Network)</br></br>
+[![ᴜᴩᴅᴀᴛᴇꜱ](https://img.shields.io/badge/ᴜᴩᴅᴀᴛᴇꜱ-Attitude_Network-red?style=for-the-badge&logo=telegram)](https://t.me/RAICHU_SPAM_SUPPORT)</br></br>
 
 </p>
 
 ## .ꜱᴜᴩᴩᴏʀᴛ🔧
 
-[![ꜱᴜᴩᴩᴏʀᴛ](https://img.shields.io/badge/ꜱᴜᴩᴩᴏʀᴛ-OAN_Support-red?style=for-the-badge&logo=telegram)](https://t.me/OAN_Support)</br></br>
+[![ꜱᴜᴩᴩᴏʀᴛ](https://img.shields.io/badge/ꜱᴜᴩᴩᴏʀᴛ-OAN_Support-red?style=for-the-badge&logo=telegram)](https://t.me/RAICHU_SPAM_BOT)</br></br>
 
 </p>
 
 ## .ᴏᴡɴᴇʀ👑
 
-[![ᴏᴡɴᴇʀ](https://img.shields.io/badge/Telegram-Contact%20Me-informational)](https://t.me/ItsAttitudeking)
+[![ᴏᴡɴᴇʀ](https://img.shields.io/badge/Telegram-Contact%20Me-informational)](https://t.me/Raichu_xD)
 
 </p>
 
